@@ -353,7 +353,7 @@ Micrographic Images.  They were later renamed to MegaGraphics.
 
 Here are some links to magazines with more info.
 
-West Coast Report column p.33 of the Sept. 86 Issue PDF.
+West Coast Report column p.29 of the Sept. 86 Issue PDF.
 
 https://vintageapple.org/macuser/pdf/MacUser_8609_September_1986.pdf
 
